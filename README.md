@@ -1,1 +1,1 @@
-# abdullahdmrc.github.io
+google.com, pub-6394002239273336, DIRECT, f08c47fec0942fa0
